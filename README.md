@@ -16,4 +16,5 @@ Historical simulations have been a bit of an obsession of mine. We live in a won
 
 # Contact #
 
-If you found this page and want to contact me. You can hit me up at bgmj (dot) ververgaert (at) gmail (dot) com, or try my LinkedIn at 
+If you found this page and want to contact me. You can hit me up at bgmj (dot) ververgaert (at) gmail (dot) com, or try my LinkedIn at https://www.linkedin.com/in/baer-ververgaert-699500162/
+
